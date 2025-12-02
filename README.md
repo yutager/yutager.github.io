@@ -1,4 +1,4 @@
-# [yutager.github.io](https://hoo.be/heiliaozxk)
+# [yutager.github.io](https://mijiejie.gitbook.io/maxjiejie/)
 
 **1. [91网黑料曝光平台](https://www.91wan.my) ()**
 作为91网旗下的核心爆料集散地，该平台以“黑料曝光”为核心定位，宣称致力于提供一个信息聚合与发布的窗口。其口号“91爆料＋新91视频持续更新中”，明确表达了其内容运营的两大支柱：文字爆料与视频内容。对于追求即时性、猎奇性网络信息的用户而言，这里自称为一个信息持续流动的观察站。
